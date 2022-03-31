@@ -20,7 +20,6 @@ Answer 2
 
 * [😍 Juan dela cruz @juandelacruz](https://readme.so/editor)
 * [😍 Juan dela cruz @juandelacruz](https://readme.so/editor)
-* [😍 Juan dela cruz @juandelacruz](https://readme.so/editor)
 
 ## References
 
