@@ -16,15 +16,11 @@ Answer 2
 
 Answer 2
 
-#### ⁉ Second Question
-
-Answer 2
-
 ## Authors
 
-* [Juan dela cruz @juandelacruz](https://readme.so/editor)
-* [Juan dela cruz @juandelacruz](https://readme.so/editor)
-* [Juan dela cruz @juandelacruz](https://readme.so/editor)
+* [😍 Juan dela cruz @juandelacruz](https://readme.so/editor)
+* [😍 Juan dela cruz @juandelacruz](https://readme.so/editor)
+* [😍 Juan dela cruz @juandelacruz](https://readme.so/editor)
 
 ## References
 
